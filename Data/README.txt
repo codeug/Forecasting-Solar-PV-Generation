@@ -1,0 +1,1 @@
+If you need Solar measuring station's data, you need to request us.
